@@ -1,7 +1,8 @@
 ## Local Turístico
 
 
-![Uploading preview.png…]()
+
+![preview](https://github.com/user-attachments/assets/2e3d3a4d-39be-421b-b64f-93211513e745)
 
 
 
